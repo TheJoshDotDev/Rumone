@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **rumoneandersonbiz@gmail.com**
 
-- ⚡ Fun fact **I am addicted to coffee ☕️**
+- ☕️ Fun fact **I am addicted to coffee **
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
